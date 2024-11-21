@@ -10,4 +10,4 @@ Forget the whales—we're the pack. 🐺💎
 
 `Even a billion dollar VC cannot compete with a cult.`
 
-[🔗 Join the Cult](https://t.me/cult_of_the_pump)
+[🔗 Join the Cult](https://t.me/cultofthepump)
